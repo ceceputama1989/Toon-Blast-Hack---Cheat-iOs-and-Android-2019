@@ -21,4 +21,4 @@ Toon Blast Hack Tools
 Toon Blast Hack Online 
 Toon Blast Hack android
 Toon Blast generator 2019
-<center><a href="http://hack2018.xyz/game/4ea0484" target="_blank"><img style="vertical-align: middle;" src="https://i.imgur.com/Lpb47DN.png" alt="" width="500" height="150"></a></center>
+
